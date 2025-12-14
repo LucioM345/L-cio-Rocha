@@ -1,2 +1,2 @@
-# L-cio-Rocha
+# Lúcio-Rocha
 Compositor e artista de Música 
